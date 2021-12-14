@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2021 Goals: be a good developer
-- ⚡ Fun fact: I love to drive my car at night and play my fave musics / chillout 
+- ⚡ Fun fact: I love to drive my car at night and play my fave musics / chill-out 😈
 
 ### Connect with me:
 
