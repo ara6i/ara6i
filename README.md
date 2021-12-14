@@ -35,6 +35,6 @@
 
 
 
-[instagram]:(https://www.instagram.com/ara6i/)
-[linkedin]:(https://www.linkedin.com/in/ara6i/)
+[instagram](https://www.instagram.com/ara6i/)
+[linkedin](https://www.linkedin.com/in/ara6i/)
 
