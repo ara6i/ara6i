@@ -6,7 +6,7 @@
 ## I'm a Front-end Web Developer !!
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
+- 👯 I’m looking to collaborate with other developers
 - 🥅 2024 Goals: be a good developer
 - ⚡ Fun fact: I love to drive my car at night and play my fave musics / chill-out 😈
 
